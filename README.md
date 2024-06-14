@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @giovinha1
-- 👀 I’m interested in study at alura
+- 👀 I’m interested in study alura
 - 🌱 I’m currently learning organization and sharing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me geovanabrandao76@gmail.com
